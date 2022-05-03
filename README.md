@@ -1,0 +1,8 @@
+- 👋 Hi, I’m @pedestrian-offering
+- 👀 I’m interested in systems that connect people
+- 🌱 I’m currently learning how to make a grassroots software movement
+- 💞️ I’m looking to collaborate on whatever youd like!
+- 📫 How to reach me 
+- Email: pedestrian_offering@protonmail.com
+- Matrix: @pedestrian_offering:matrix.org
+- Our room: https://matrix.to/#/#comejointhecoolnewthing:matrix.org
